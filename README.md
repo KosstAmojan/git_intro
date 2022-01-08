@@ -1,1 +1,2 @@
 Matthew Norwood
+norwooma@oregonstate.edu
